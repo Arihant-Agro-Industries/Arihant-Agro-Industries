@@ -13,7 +13,7 @@ Arihant Agro Industries focuses on providing high-quality agro-products and tech
 For any inquiries or to get in touch with the team, you can reach us via:
 
 - **Email**: arihantagroind72@gmail.com
-- **Website**: [Arihant Agro Industries](http://www.arihantagroindustries.com)
+- **Website**: [Arihant Agro Industries](http://www.arihantagroindustries.in)
 
 
 
